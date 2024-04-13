@@ -1,0 +1,1 @@
+# AICourseG3-LigiaCS
